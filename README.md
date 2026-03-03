@@ -21,5 +21,10 @@
 - Become Job-Ready Engineer
 
 ---
+## 📊 Published Research
 
+- 📄 Effect of Workplace Mental Health Program at Employee Productivity and Absenteeism (2025)
+  🔗 https://rc-archive.com/index.php/Journal/article/view/281
+
+  
 ⭐ Building my future one step at a time.
